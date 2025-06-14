@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **sohomnandy9@gmail.com**
 
-- ⚡ Fun fact **I think I know what I'm doing but in reality I don't even have the slightest idea.**
+- ⚡ Fun fact : **I think I know what I'm doing but in reality I don't even have the slightest idea.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
